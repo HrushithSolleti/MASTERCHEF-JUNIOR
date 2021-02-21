@@ -1,0 +1,1 @@
+{1kg chicken , onions , tomatoes , green chillies , curry leaves , coriander leaves , ginger garlic paste , spices(cardamom,cloves,cinnamon,bayleaf,star anise,kalpase,poppyseeds,fennelseeds) , turmeric powder , chilli powder , coriander powder , garam masala powder , salt , oil}
